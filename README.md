@@ -1,0 +1,1 @@
+# ilker_sazak_YODA_OTONOM_YAZILIM
